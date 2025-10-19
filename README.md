@@ -1,4 +1,5 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=10&size=25&pause=1000&color=5BF724&width=435&lines=%F0%9F%91%8B+Welcome+here%2C+I'm+Faiza!)](https://git.io/typing-svg)
+
 💻 Computer Science Major @ Hunter College
 
 
