@@ -7,10 +7,10 @@
 
 
 
-###🌟 Fun Facts
-~ I love creating and editing aesthetic posts for motivational content.
-~ I love anything biscoff. 
-~ I make custom-made Islamic posters on Canva. 
+🌟 Fun Facts
+- I love creating and editing aesthetic posts for motivational content.
+- I love anything biscoff. 
+- I sell custom-made Islamic posters on Etsy. 
 
 ⭐ Let's Connect!  
 📧 Email: [faizasarker123@gmail.com](mailto:faizasarker123@gmail.com)  
