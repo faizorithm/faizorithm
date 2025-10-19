@@ -10,6 +10,7 @@
 
 
 🌟 Fun Facts
+
 - I love creating and editing aesthetic posts for motivational content.
 - I love anything biscoff. 
 - I sell custom-made Islamic posters on Etsy. 
