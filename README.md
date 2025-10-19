@@ -3,7 +3,7 @@
 💻 Computer Science Major @ Hunter College
 
 
-👩‍💻  Adventourous | Builder | Coder | Determined | 
+👩‍💻  Adventurous | Builder | Coder | Determined | 
 
 
 
