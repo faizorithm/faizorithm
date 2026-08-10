@@ -8,9 +8,10 @@
 
 
 🌟 Fun Facts
-- I love creating and editing aesthetic posts for motivational content.
-- I love anything biscoff. 
-- I sell custom-made Islamic posters on Etsy. 
+- Digital designing, creating, and editing aesthetic Canva posters 🎨
+- I find new recipes on TikTok and turn them into a whole spread 🍱
+- Chai lattes or strawberry matchas + a long walk = the perfect way to get to know me ☕🍓
+
 
 ⭐ Let's Connect!  
 📧 Email: [faizasarker123@gmail.com](mailto:faizasarker123@gmail.com)  
