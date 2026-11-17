@@ -19,5 +19,5 @@ I'm always open to connecting with people interested in technology, data, design
 
 - 🌐 **Portfolio:** https://faizorithm.netlify.app/
 - 💻 **GitHub:** https://github.com/faizorithm
-📧 Email: [faizasarker123@gmail.com](mailto:faizasarker123@gmail.com)  
-🔗 LinkedIn: [Faiza Sarker](https://www.linkedin.com/in/faizasarker/)
+- 📧 **Email:**  [faizasarker123@gmail.com](mailto:faizasarker123@gmail.com)  
+- 🔗 **LinkedIn:**  [Faiza Sarker](https://www.linkedin.com/in/faizasarker/)
